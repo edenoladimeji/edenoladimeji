@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @edenoladimeji
-- 👀 I’m interested in ...Greater Developer
+- 👀 I’m interested in ...Great Developer With a Great mind
 - 🌱 I’m currently learning ...Web Development
 - 💞️ I’m looking to collaborate on ...Web Development Project
 - 📫 How to reach me ...+234 8100712523
